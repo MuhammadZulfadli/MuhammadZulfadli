@@ -8,4 +8,4 @@
 - 📫 How to reach me: 
   - Telegram: [Muhammad Zulfadli](https://t.me/ipayzulfadli)
   - Linkedin: [Muhammad Zulfadli](https://www.linkedin.com/in/muhammad-zulfadli/)
-- ⚡ Fun fact: Cheese, chocolate, and coffe addict
+- ⚡ Fun fact: Cheese, chocolate, and Capuccino
